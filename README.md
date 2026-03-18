@@ -50,7 +50,12 @@ ${\textsf{\color{#ffd700}"մsҽ íԵ/íԵs օɾ հҽ/հíო օղ ოҽ ժմɾí
 <img width="467" height="450" alt="Untitled432_20260318182635" src="https://github.com/user-attachments/assets/4d26b04d-9daa-42fb-a15b-379ec81e617f" /><img width="360" height="356" alt="Untitled434_20260318185141" src="https://github.com/user-attachments/assets/e6fc4bf4-1a9e-415e-b5cb-f27d3eb4d99d" />
 
 
+<img width="1280" height="720" alt="Untitled431_20260318182335" src="https://github.com/user-attachments/assets/c68d22f7-c0a3-4e2b-a281-035b7ce41eb9" />
+
+<img width="735" height="258" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/64ba165b-f2bf-4cf9-ac1e-7b43f66a184e" />
 
 
+<img width="735" height="258" alt="Untitled433_20260318182824" src="https://github.com/user-attachments/assets/fc7accc4-583b-46fe-bd11-fed633e2dc7a" />
+<img width="735" height="258" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/6d5b000b-9819-4870-b4cb-9625444c5975" />
 
 
