@@ -55,7 +55,6 @@ ${\textsf{\color{#ffd700}"մsҽ íԵ/íԵs օɾ հҽ/հíო օղ ოҽ ժմɾí
 <img width="735" height="258" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/64ba165b-f2bf-4cf9-ac1e-7b43f66a184e" />
 
 
-<img width="735" height="258" alt="Untitled433_20260318182824" src="https://github.com/user-attachments/assets/fc7accc4-583b-46fe-bd11-fed633e2dc7a" />
-<img width="735" height="258" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/6d5b000b-9819-4870-b4cb-9625444c5975" />
 
 
+Drawings are not mine! + Layout edited by me! 
