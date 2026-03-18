@@ -46,7 +46,9 @@ ${\textsf{\color{#ffd700}"մsҽ íԵ/íԵs օɾ հҽ/հíო օղ ოҽ ժմɾí
     
  -ɾҽցҽcԵ
 <p align= right>
-<img width="389" height="399" alt="Untitled432_20260318182635" src="https://github.com/user-attachments/assets/30563de5-a28e-4028-8ec6-fab4ba792322" />
+
+<img width="467" height="450" alt="Untitled432_20260318182635" src="https://github.com/user-attachments/assets/4d26b04d-9daa-42fb-a15b-379ec81e617f" /><img width="206" height="215" alt="Untitled434_20260318185141" src="https://github.com/user-attachments/assets/e6fc4bf4-1a9e-415e-b5cb-f27d3eb4d99d" />
+
 
 
 
