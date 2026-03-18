@@ -1,4 +1,4 @@
-<img width="735" height="258" alt="Untitled433_20260318182824" src="https://github.com/user-attachments/assets/362cde6c-1cd1-4d31-8212-f9162443bb6a" />
+<img width="899" height="258" alt="Untitled433_20260318182824" src="https://github.com/user-attachments/assets/362cde6c-1cd1-4d31-8212-f9162443bb6a" />
 
 <img width="500" height="758" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/a81e8183-7a0e-4854-a36f-545b89b35500" />
 
@@ -53,7 +53,7 @@ ${\textsf{\color{#ffd700}"մsҽ íԵ/íԵs օɾ հҽ/հíო օղ ოҽ ժմɾí
 
 <img width="1280" height="720" alt="Untitled431_20260318182335" src="https://github.com/user-attachments/assets/c68d22f7-c0a3-4e2b-a281-035b7ce41eb9" />
 
-<img width="735" height="258" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/64ba165b-f2bf-4cf9-ac1e-7b43f66a184e" />
+<img width="899" height="258" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/64ba165b-f2bf-4cf9-ac1e-7b43f66a184e" />
 
 
 
