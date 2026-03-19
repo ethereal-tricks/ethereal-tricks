@@ -56,6 +56,9 @@ ${\textsf{\color{#ffd700}"մsҽ íԵ/íԵs օɾ հҽ/հíო օղ ოҽ ժմɾí
 <img width="899" height="258" alt="Untitled433_20260318182930" src="https://github.com/user-attachments/assets/64ba165b-f2bf-4cf9-ac1e-7b43f66a184e" />
 
 
-
-
+<p></p>
+<p></p>
 Drawings are not mine! + Layout edited by me! 
+<p align= center>
+
+***This ARG is so peak. Cried 9 times because of that damn kid, carrots and the cape🥹***
